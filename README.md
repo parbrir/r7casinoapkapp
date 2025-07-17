@@ -5,7 +5,7 @@
 
 ➡️ **[СКАЧАТЬ APK](https://github.com/parbrir/r7casinoapkapp/blob/main/R7Casino.apk "СКАЧАТЬ APK")**
 
-➡️ **[ПЕРЕЙТИ НА ОФИЦИАЛЬНЫЙ САЙТ](https://clck.ru/3Mmm8s "ПЕРЕЙТИ НА ОФИЦИАЛЬНЫЙ САЙТ")**
+➡️ **[ПЕРЕЙТИ НА ОФИЦИАЛЬНЫЙ САЙТ](https://clck.ru/3NAHTh "ПЕРЕЙТИ НА ОФИЦИАЛЬНЫЙ САЙТ")**
 
 ---
 
@@ -120,4 +120,4 @@ R7 casino apk — это мобильное приложение, разрабо
 [**Скачать R7 Casino APK**](https://github.com/parbrir/r7casinoapkapp/blob/main/R7Casino.apk)
 
 Установка займёт пару минут. А выигрыш — может изменить всё. Удачи!
-[![](https://i.ibb.co/zTCT2pZY/photo-2024-04-23-02-26-34.jpg)](https://clck.ru/3Mmm8s)
+[![](https://i.ibb.co/zTCT2pZY/photo-2024-04-23-02-26-34.jpg)](https://clck.ru/3NAHTh)
